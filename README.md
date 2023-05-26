@@ -1,4 +1,6 @@
-### Hi there 👋
+
+![Red and Black Dark Gamer Sports YouTube Banner (2)](https://github.com/VenuGopalBestha/VenuGopalBestha/assets/103578678/e2402c43-0654-427d-b154-162cd925a423)
+### Hi there, I'm Venu 👋
 
 <!--
 **VenuGopalBestha/VenuGopalBestha** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
